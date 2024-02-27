@@ -1,3 +1,3 @@
 Stephen Cooley
-Northeastern '27
-Computer Science and Mechanical Engineering
+Northeastern University Class of 2027
+Computer Science
